@@ -22,9 +22,8 @@ Coming soon
 
 ## Links
 
-Website:
-Coming soon
+Website:http://zecfund.fun/
 
-X:(https://x.com/ZecFundFun)
+X:https://x.com/ZecFundFun
 Pump.fun:
 Coming soon
